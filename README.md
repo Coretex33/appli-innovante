@@ -21,6 +21,7 @@ Une énergie débordante et une conviction que ce projet peut être un game-chan
 Le deal : C’est un projet bénévole pour le moment, mais si ça décolle, on partage tout à 50/50 – efforts, succès, bénéfices, tout ! Tu seras ma moitié dans cette aventure.
 
 Avant de partager les détails de l’idée, nous rédigerons et signerons un accord de confidentialité (NDA) pour protéger le projet et garantir que nos échanges restent confidentiels, assurant ainsi une collaboration en toute confiance.
+Contacte moi sur Bugattack33@gmail.com
 
 Pas besoin d’être un expert absolu, juste d’avoir l’envie de construire quelque chose d’incroyable ensemble. Si tu te sens prêt(e) à changer la donne avec moi, envoie-moi un MP pour qu’on discute de l’idée et qu’on voie si le courant passe. 😄
 
